@@ -1,1 +1,0 @@
-Brochure Provincia di Potenza
